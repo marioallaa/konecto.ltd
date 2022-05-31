@@ -1,0 +1,2 @@
+# konecto.ltd
+Konecto LTD
